@@ -1,1 +1,1 @@
-[https://angelgamer29ja.github.io/player.m3u](Mexico IPTV)
+[Mexico IPTV](https://angelgamer29ja.github.io/player.m3u)
